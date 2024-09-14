@@ -1,3 +1,3 @@
 # Belajar-Kolaborasi
 Jangan menyerah kawan<br>
-Tetap konsisten
+Berikan selalu usaha terbaikmu!<br>
