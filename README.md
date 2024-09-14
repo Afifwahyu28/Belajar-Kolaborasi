@@ -1,4 +1,3 @@
 # Belajar-Kolaborasi
-Ayok semangat!<br>
-Jangan menyerah kawan
+Jangan menyerah kawan<br>
 Tetap konsisten
